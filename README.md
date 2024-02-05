@@ -1,4 +1,4 @@
-# Fotos: Casa Loac, Guatavita
+# Fotos: Casa Loca, Guatavita
 
 Estas son las fechas de captura de las fotos:
 
